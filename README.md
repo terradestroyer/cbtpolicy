@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Aristyo built the Smaniro CBT app as a Free app. This SERVICE is provided by Aristyo at no cost and is intended for use as is.
+Aristyo built the Simulasi CAT CPNS Pembahasan app as a Free app. This SERVICE is provided by Aristyo at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
